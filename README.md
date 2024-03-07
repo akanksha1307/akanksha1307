@@ -18,7 +18,7 @@
 
 - A passionate Self-taught Data Analyst
 - Currently learning Power BI by Self
-- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://read.cv/0xabdulkhalid)
+- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://tinyurl.com/Resume-Akanksha-Adase)
 
 <br><br>
 
