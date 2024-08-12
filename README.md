@@ -17,7 +17,7 @@
 <br>
 
 - A passionate Self-taught Frontend Developer and Data analyst
-- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://tinyurl.com/Resume-Akanksha-Adase)
+- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://drive.google.com/file/d/1kZr6a20Gyf8knxuQZRjDALuL7ftlqWIw/view?usp=drive_link)
 
 <br><br>
 
